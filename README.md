@@ -1,1 +1,1 @@
-# iphone-16
+# kun.uz-iphon-16pro-max
